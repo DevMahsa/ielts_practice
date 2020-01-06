@@ -7,7 +7,7 @@ speaking interview part1
 
 **name**
 -----
-My first name is Mahsa which means ,like the moon, and nowadays it’s going to be relatively common in my country and family name is Gol-chi-yan (reaping flowers equivalent in english :D ).
+My first name is Mahsa which means ,like the moon, and nowadays it’s going to be relatively common in my country and my family name is Gol-chi-yan (reaping flowers equivalent in english :D ).
 
 **who named you**
 ----
